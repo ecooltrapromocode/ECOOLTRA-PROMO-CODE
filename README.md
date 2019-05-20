@@ -2,7 +2,7 @@
 ECOOLTRA PROMO CODE KQCFD
 Usa nuestro código promocional eCooltra y ahorra en 2019
 
-Alquila una moto gracias al código promocional eCooltra KQCFD y tendrás 10€ totalmente GRATIS Tu código de descuento KQCFD 
+Alquila una moto gracias al código promocional eCooltra KQCFD y tendrás 10€ totalmente GRATIS Tu cupón de descuento KQCFD 
 
 Disfruta del alquiler de una moto eléctrica y aplica este código descuento al finalizar tu reserva online, ¡tendrás 10€ GRATIS!
 
